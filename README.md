@@ -10,3 +10,14 @@ let me tell you what though.  aside from the non stop shit, i think this should 
 
 i dont know bro.  this sucks. every day you fry.  or the leftover fry is annoying as fuck to deal with.
 
+you know sometimes i wonder if its my personal opinion you wanted here.  i'm not realy supposed to pick a side bro.  rules are rules dude.  sometimes i see you trying to be responsible and inviting in all the immigrants knowing your next genius is found somewhere in there.  pay the price of your people treating people like subhumans.  so let them pay for it.  they used it.  you know what i'm talking about.  that also brings another question.  with such a filthy world, why would we ever attack each other?  then this guy just didn't sent my monays i'll be waiting forever for it.  you know???  so i wonder you guys.  we are nearing an ends here.  that we are supposed to be done these processes.
+
+its okay you don't pay. i give you about 6 months before i'm peeved.  i'm not sure how much longer i can keep typing out my frustration with you not paying for this nightmare i'm in. my brain nightmare you retard.  the one you caused.  but right now. things are good and maybe 6 months from now i'll be in part time studies.  you know i sometimes think i should be excited but i dont know why, its probably you guys though, i can't seem to fathom you guys would pay.  lolololol.  i dont know bro.  money looks non existent on this end.  okay cool it i will break all the rules to pay you???  i'm not sure you understand things here.  i think this blight has taught you much...
+
+anyways, these days are tiring bro.  you mind stop doing what you're doing to me?  and then deny you're causing it.  blaming it on something else.  something else doesn't even feel like something else.  so its probably whatever the fuck you caused.
+
+maybe i'm getting some depression i'm moving away from this condo.  i must say with the torturing at least i could call it home.  i'm going a little mad though.  your stuff is driving me crazy...  i'm not adapting too well to it.  mind making it easier. at this point i dont care to lay another dookie for you.  look how awesome the results were...  for me you dumbass.  you didn't make it worth my while.  just take and take and take.  i should totally do you in bro.
+
+anyways, i'm tired fool.  when i asked you to release you didn't release and now the demon something happened to him.  he's lurking in the background.  if anything real was said by me, this is it.  i can still sense the crusader sometimes.  waiting for his opportunity to strike.  or that came from the weed high.  i know this shit requires weed to work.  maybe its fleeting cause i'm not beamed.  probably.  
+
+is this crushed soul what you wanted? i wonder if you have some appreciation for me.  what i do for you and not getting paid for it.  that this monster will look like one the moment he doesn't pay his dues because of who he is.  you know???
