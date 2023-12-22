@@ -1,9 +1,12 @@
 # expectations
 
-so its another day we don't do anything except the best thing you could possibly do...  i say this ain't for ptsd bro.  hmmm.  thinking about that.  the more damaged i am the more it means its the truth...  so i guess this is good i'm fucked???  i feel bad i'm not suffering like them and sit here bragging that i'm helping the us military but there is no confirmation i'm doing anything useful.  all i get is this nonsense day in day out.  getting me in shitty situations.  you did it first hand with me already bro.  we did the whole thing.  i told you next time if i say no maybe heed the warnings.  they were gonna die anyways lol...
+i must admit though.  at this point, i think i've done enough to get paid too much.  but no monees are around here again.  i gave you quite a bit of alien technology here.  why you keep wanting to know what i think of things?  it all sucks bro.
 
-so i wonder my friend, your predictability and choice are something wanting.  i feel you guys don't get paid enough to do this kind of work.  this some super secret shit.  what else can it be???
+you guys really gotta stop pulling me here.  i know you do it.  i can sense the pain causing me to type out shit.  so once again, its something you caused...
 
-cause like 80k paying taxes, well i dont know what to say.  lololololol
+what i want to talk about is my hopes and dreams.  but nope. you ain't good for that.  not worth it.  this has been too much misery for what its worth.  which is nothing right now.  so sometimes i can't tell if i've done something properly.  no monees again... sigh.
 
-so this is alien technology you used.  i gave you alien abilities and usage.  why are you insisting i produce more for you?  sometimes i wonder how much my tolerance can hlold.  weed told me that i should just feel it less.  so i should pay attention less and personally think less of it.  what are we talking about? i forgot.
+i really wished you guys didn't suck so much.  hide and run too much.  too much for my tastes.  i dont know what else to say bro. you pull me here and i pop my brain but there ain't shit to do. i have no further instructions for you or did you not get the memo?
+
+absolutely nothing to do anymore bro.  i couldn't find it.  its like as if this whole time was just a shitty feeling.  and then i remember the hate.  and its not really there so i spend my days not resisting you.  should i start though???
+
