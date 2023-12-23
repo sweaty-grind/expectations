@@ -9,3 +9,5 @@ this is unendurable.  i can't tolerate this much shit.  i need an out.  and when
 so what say you this some sort of strange concept of work.  people think its okay to be promised money???  what about 4 years later???  still retarded like i said from the start???  you guys stink lol.
 
 so this became an issue of paying for shit to handle your shit and i'm running out of money. i'm really fatigued dude.  can't afford to eat out.  the food is missing fatty oils or some shit what i eat at home.  i dont' know bro.  and then the idiots drug me with clozapine and make me diabetic.  i mean, bro.  we dont have an exit strategy.  you wanted it like this maybe pay for shit you stupid fuck.  lolololol.  i dont know bro.  i'm tired of living like this.  someone needs to be held accountable.
+
+nope. one day i will just decide to go smash some glass.  that will be the end of this shit.  something i need to do.  i just don't like you guys.  this is mega stupid fuck.
